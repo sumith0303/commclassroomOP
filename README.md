@@ -1,3 +1,5 @@
 # commclassroomOP
 
-Kunal Kushwaha learing github amazing..
+Kunal Kushwaha learning github amazing..
+Sumith says that,I am able to understand the course well and clear
+
